@@ -7,7 +7,7 @@
 ## ✨ Speakers
 
 - Satyarth Mishra Sharma
-- Nisha 
+- Nisha Sayona Ekka 
 - Siddhant Kapadne
 
 *Links and other extras* -> [[March 2025]]
