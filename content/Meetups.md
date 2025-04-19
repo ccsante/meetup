@@ -1,3 +1,15 @@
+# April 2025 
+
+Group photo coming soon 🥁
+
+Video coming soon 🥁
+
+## ✨ Speakers
+
+- Anusheel Gurjar
+- Shreni Sanghvi  
+- Somil Mehta
+
 # March 2025 
 
 ![[attachments/スクリーンショット 2025-03-29 午後8.22.46.png]]
