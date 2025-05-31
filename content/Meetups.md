@@ -1,3 +1,14 @@
+# May 2025
+
+![[スクリーンショット 2025-05-31 午後8.01.32.png]]
+
+Video coming soon 🥁
+
+## ✨ Speakers
+
+- Sandeep Kasani
+- Ujjwal
+
 # April 2025 
 
 ![[attachments/スクリーンショット 2025-04-19 午後9.01.25.png]]
