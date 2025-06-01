@@ -38,8 +38,9 @@ We’d love to see you there!
 
 **Stay Connected:**
 
-- [**Website**](https://ccsante.in)
-- [**Social Media**](https://www.instagram.com/ccsantein/)
+- [**website**](https://ccsante.in)
+- [**instagram**](https://www.instagram.com/ccsantein/)
+- [**discord**](https://discord.gg/W9aj4Gq7N5)
 
 Let’s code creatively, together!
 
